@@ -1,3 +1,0 @@
-# revanced
-# revanced
-# revanced
